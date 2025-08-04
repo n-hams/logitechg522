@@ -1,0 +1,2 @@
+# logitechg522
+headset
